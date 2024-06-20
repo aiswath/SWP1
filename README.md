@@ -1,0 +1,1 @@
+Temujin is gay
