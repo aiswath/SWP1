@@ -1,1 +1,1 @@
-Temujin is gay
+Temujin is gomo
