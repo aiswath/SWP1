@@ -1,2 +1,1 @@
-Temujin is gomo
-fdffff
+Welcome to Git, Babe!!
