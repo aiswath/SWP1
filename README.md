@@ -1,2 +1,1 @@
-Welcome to Git, Babe!!
-Mingalarpr!!
+Welcome to Git!
